@@ -1,0 +1,1 @@
+# Trabalho-Filosofia---Serie-de-Fourier
